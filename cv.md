@@ -15,7 +15,8 @@ My soft skills:
 * perseverance
 * time management ( but with my little child its VERY difficult at that moment)
 * willingness to learn
-* work ethic 
+* work ethic
+* adaptability
 *******
 ###**Skills**
 *****
