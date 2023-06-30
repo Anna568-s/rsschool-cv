@@ -5,7 +5,7 @@
 Location: Minsk, Belarus
 Phone: +375 29 568 45 36
 E-mail: Flower_mv@mail.ru
-Github: Ann568-s
+Github: Anna568-s
 *****
 ###**Summary**
 *****
